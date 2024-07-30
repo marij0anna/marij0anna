@@ -1,4 +1,4 @@
-## Hi there 👋
+# About Me
 
 <!--
 **marij0anna/marij0anna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
