@@ -1,6 +1,6 @@
 # I am Joanna✨🇧🇷
 
-atualmente sou estudante de Ciências da Computação, e formada Técnica em Informática, e ainda me apaixonando mais pela tecnologia... <br>
+sou amazônida, tenho 19 anos e atualmente sou estudante de Ciências da Computação, já formada Técnica em Informática, e ainda me apaixonando mais pela tecnologia... <br>
 *i am pursuing bachelor in Computer Science and already IT Technician, and every day falling more in love with the technology*
 
 ### Fun Facts: 
